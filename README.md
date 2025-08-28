@@ -1,4 +1,4 @@
-# 👋 Hi, I'm [Your Name]  
+# 👋 Hi, I'm ABDUAZIM  
 
 💻 **Web & Software Developer** | 🚀 **Open-source Enthusiast** | 🌍 **Always Learning**
 
